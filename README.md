@@ -1,2 +1,2 @@
-# Pre-Shabbat-Kiddush-for-Others
-Pre-Shabbat Kiddush for Others
+# Early-Shabbos-Kiddush-for-Others
+Early-Shabbos-Kiddush-for-Others
